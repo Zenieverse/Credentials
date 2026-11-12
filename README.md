@@ -1,2 +1,12 @@
 # Credentials
-Ai, Web3, Law, ...
+Ai, Web3, Law, Languages, ...
+
+Language:
+English Proficiency: https://drive.google.com/file/d/1Zy7l32gv4YRpTI81EmdvEH9-DR0CgWJf/view?usp=drivesdk
+
+AI
+Prompting: https://www.coursera.org/account/accomplishments/verify/THE204HEQ875?utm_source=ios&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course
+
+Web3:
+Mastering Web3: https://drive.google.com/file/d/18N3RIroClXE2gpVd98LbMcegILWSIDmL/view?usp=drivesdk
+Currently Enrolled: Digital Currency / Blockchain and Digital Assets
