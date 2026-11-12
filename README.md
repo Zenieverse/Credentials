@@ -13,6 +13,10 @@ https://www.coursera.org/account/accomplishments/verify/THE204HEQ875?utm_source=
 
 https://www.coursera.org/account/accomplishments/specialization/2CVR7MRNIXG7
 
+AI Fluency for Creative Work
+
+https://academy.claude.com/verify/2e1d7c28d612612dcee43552992e853b 
+
 App Deployment: https://www.coursera.org/account/accomplishments/verify/GSBNWME56DBE?utm_source=ios&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course
 
 App Build: https://www.coursera.org/account/accomplishments/verify/QGXA3XVDZNVP?utm_source=ios&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course
