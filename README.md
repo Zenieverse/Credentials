@@ -2,11 +2,16 @@
 Ai, Web3, Law, Languages, ...
 
 Language:
+
 English Proficiency: https://drive.google.com/file/d/1Zy7l32gv4YRpTI81EmdvEH9-DR0CgWJf/view?usp=drivesdk
 
 AI
 
-Prompting: https://www.coursera.org/account/accomplishments/verify/THE204HEQ875?utm_source=ios&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course
+Prompting: 
+
+https://www.coursera.org/account/accomplishments/verify/THE204HEQ875?utm_source=ios&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course
+
+https://www.coursera.org/account/accomplishments/specialization/2CVR7MRNIXG7
 
 App Deployment: https://www.coursera.org/account/accomplishments/verify/GSBNWME56DBE?utm_source=ios&utm_medium=certificate&utm_content=cert_image&utm_campaign=sharing_cta&utm_product=course
 
