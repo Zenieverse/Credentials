@@ -9,4 +9,9 @@ Prompting: https://www.coursera.org/account/accomplishments/verify/THE204HEQ875?
 
 Web3:
 Mastering Web3: https://drive.google.com/file/d/18N3RIroClXE2gpVd98LbMcegILWSIDmL/view?usp=drivesdk
-Currently Enrolled: Digital Currency / Blockchain and Digital Assets
+Currently Enrolled: Digital Currency / Blockchain and Digital Assets from Sept 2026 to Jan 2027
+
+
+Law:
+https://drive.google.com/file/d/1-iODyK3_NNtmaqngL5_BhABeV9utyeLC/view?usp=drivesdk
+https://drive.google.com/file/d/1GuY61Hm5s3F30Hk86sJxlodU5_SE3795/view?usp=drivesdk 
